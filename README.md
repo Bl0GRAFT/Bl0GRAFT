@@ -2,6 +2,8 @@
 
 <sub> CREDITS FOR LAYOUT AND PFP. ~ ⠀[⚡](https://www.tumblr.com/pixopix/806301342822957056/hii-would-you-be-so-kind-to-recolor-these?source=share)⠀ [⚙️](https://www.tumblr.com/pixopix/816615584540311552/gradient-dot-dividers?source=share)⠀ [⚡](https://www.tumblr.com/nnickykunn/810365841005756416/chilling-biograftw-their-beans?source=share)
 <img width="2046" height="341" alt="1000006854" src="https://github.com/user-attachments/assets/5bd88939-cb9c-4eed-ac0a-c08ccd7e6f92" />
+<img src="https://komarev.com/ghpvc/?username=Y4tta&label=TARGETS+EXECUTED&labelColor=red&color=D96C00&style=flat" alt="Profile views"/>
+
 <img width="500" alt="1000006849" src="https://github.com/user-attachments/assets/18dae1d1-7beb-4c4f-9878-7fb284471bf6" />
 
 <sub> FORGOT THE OWNER OF THIS ART ABOVE ME.
